@@ -1,0 +1,1 @@
+# analizator_meneger2201
